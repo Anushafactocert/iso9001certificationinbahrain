@@ -2,7 +2,8 @@
 
 Benefits of ISO 9001 Certification in Bahrain :
 
-[ISO 9001 CERTIFICATION IN BAHRAIN (1)](https://user-images.githubusercontent.com/89084770/133432045-fe90362d-40b9-43e5-9c1c-c5446d79b8f0.png)
+![ISO 9001 CERTIFICATION IN BAHRAIN (1)](https://user-images.githubusercontent.com/89084770/133433548-f3076782-9aa8-4835-8b07-74e68011562f.png)
+
 
 A brief about ISO 9001 Certification in Bahrain:
 
